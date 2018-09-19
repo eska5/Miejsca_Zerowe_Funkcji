@@ -1,0 +1,1 @@
+# Miejsca_Zerowe_Funkcji
